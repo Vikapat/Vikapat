@@ -1,1 +1,1 @@
-[![VIKA-PUTRI-AJININGTIAS.png](https://i.postimg.cc/sg7JW2z8/VIKA-PUTRI-AJININGTIAS.png)](https://postimg.cc/DSfskn8d)
+[![VIKA-PUTRI.png](https://i.postimg.cc/xddXK0bY/VIKA-PUTRI.png)](https://postimg.cc/G4Z3RnQS)
