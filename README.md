@@ -10,7 +10,7 @@
   
 🏡 Banjarnegara, Central Java
 
-📸 I love photography
+*I loves photography*
 
 [![Astrophile.png](https://i.postimg.cc/sxv8mwGT/Astrophile.png)](https://postimg.cc/4HRBNv5c)
 
